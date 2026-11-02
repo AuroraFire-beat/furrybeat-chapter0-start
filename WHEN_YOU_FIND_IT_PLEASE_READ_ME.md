@@ -6,3 +6,7 @@ This is the end of the first stage of the ARG. Thanks for all your hard work—y
 The upcoming journey, let's start it together——
 《FurryBeat》第〇章 《破晓之日》 未完待续
 FurryBeat Chapter-0 Dawn to be continued
+
+What's more?
+You will find the answer,about the trust,and love.
+See you.
